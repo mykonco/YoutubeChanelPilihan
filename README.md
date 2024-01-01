@@ -16,6 +16,7 @@ Berikut adalah daftar playlist YouTube pilihan terbaik yang dapat Anda nikmati. 
 | 10 | Calon Sarjana Official | [Link Channel](https://youtube.com/@CalonSarjanaOfficial?si=VQ18mr1OLHU_U7tG) |
 | 11 | YtCrash | [Link Channel](https://youtube.com/@YtCrash?si=wnEhzXB9sJywlAty) |
 | 12 | Rumah Editor | [Link Channel](https://youtube.com/@RumahEditor?si=k6YiQQgZvakR8nRx) |
+| 13 | YtCrash Claim | [Link Channel](https://youtube.com/@YtCrashClaims?si=u6DQNB-_JNu0Iu1s) | 
 
 Selamat menikmati playlist yang telah kami pilihkan untuk Anda!
 
