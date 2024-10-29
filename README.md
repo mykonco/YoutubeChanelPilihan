@@ -24,6 +24,20 @@ Berikut adalah daftar playlist YouTube pilihan terbaik yang dapat Anda nikmati. 
 | 18 | YtCrash | [Link Channel](https://youtube.com/@YtCrash?si=wnEhzXB9sJywlAty) |
 | 19 | KabarPedia | [Link Channel](https://youtube.com/@KabarPedia?si=9FrSOOethPbVnry3) |
 
+
+
+# Playlist Youtube Kids
+
+| No | Nama Channel | Link |
+| --- | ------------ | ---- |
+| 1 | Lucas The Spider | [Link Channel](https://www.youtube.com/@lucasthespider/featured) |
+| 2 | Bluey Official Channel | [Link Channel](https://www.youtube.com/@BlueyOfficialChannel) |
+| 3 | First Toons | [Link Channel](https://www.youtube.com/@FirstToons) |
+| 4 | Puffin Rock | [Link Channel](https://www.youtube.com/@PuffinRock) |
+| 5 | BabyBus Indonesia | [Link Channel](https://www.youtube.com/@BabyBusID) |
+| 6 | Belajar Bersama Kinderflix | [Link Channel](https://www.youtube.com/@BelajarBersamaKinderflix) |
+
+
 Selamat menikmati playlist yang telah kami pilihkan untuk Anda!
 
 Selamat menikmati!
